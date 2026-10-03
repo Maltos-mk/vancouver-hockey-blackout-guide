@@ -1,1 +1,0 @@
-# Vancouver Hockey Blackout Guide
